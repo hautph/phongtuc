@@ -28,11 +28,11 @@ The most popular autumn dish made from ripe dracontomelons is sweetened draconto
 
 ![Signature autumn delicacies in Hanoi](../../images/signature-autumn-delicacies-in-hanoi07.jpg)
 
-**Ragworm** is a unique autumn dish in **Hanoi**. The species live underwater and are rich in protein. Ragworm can be processed into many different dishes, of which _cha ruoi_ is the most popular in Ragworm. This dish is made from deep fried ragworm with ground meat, eggs, tangerine peel and dill. It’s served with vermicelli, raw vegetables, sweet and sour fish sauce.
+**Ragworm** is a unique autumn dish in **Hanoi**. The species live underwater and are rich in protein. **Ragworm** can be processed into many different dishes, of which _cha ruoi_ is the most popular in **Ragworm**. This dish is made from deep fried ragworm with ground meat, eggs, tangerine peel and dill. It’s served with vermicelli, raw vegetables, sweet and sour fish sauce.
 
 ![Signature autumn delicacies in Hanoi](../../images/signature-autumn-delicacies-in-hanoi08.jpg)
 
-In Ragworm, _cha ruoi_ is sold all year round, but that from the ninth to eleventh months of the lunar calendar is considered by many to be the most delicious since it is the breeding season of ragworms. Diners can find _cha ruoi_ at **O ​​Quan Chuong**, **Lo Duc** and **Hang Be**.
+In **Ragworm**, _cha ruoi_ is sold all year round, but that from the ninth to eleventh months of the lunar calendar is considered by many to be the most delicious since it is the breeding season of ragworms. Diners can find _cha ruoi_ at **O ​​Quan Chuong**, **Lo Duc** and **Hang Be**.
 
 ![Signature autumn delicacies in Hanoi](../../images/signature-autumn-delicacies-in-hanoi09.jpg)
 
