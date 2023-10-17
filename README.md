@@ -1,4 +1,4 @@
-# Vietnamese customs and traditions
+# Vietnamese Customs and Traditions
 
 Vietnamese customs and traditions are a rich and diverse tapestry that reflects the country's long and complex history. From the traditional Vietnamese wedding to the Tet holiday, Vietnamese customs and traditions are a vital part of the country's culture.
 
