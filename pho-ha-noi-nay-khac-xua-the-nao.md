@@ -1,15 +1,15 @@
 # Phở Hà Nội nay khác xưa thế nào? - VnExpress Du lịch
+
 Phở Hà Nội nay vẫn ngon nhưng ít nhiều đã thay đổi từ cách nấu đến cách phục vụ bởi nhiều biến động xã hội, theo chuyên gia về phở Trịnh Quang Dũng.
 
 Ông Trịnh Quang Dũng, nhà khoa học 71 tuổi làm việc tại Viện Hàn lâm Khoa học và Công nghệ Việt Nam, năm 2022 ra mắt cuốn sách "Trăm năm phở Việt" (NXB Phụ nữ Việt Nam) sau hàng chục năm sưu tầm, nghiên cứu các tài liệu quý về phở từ xưa tới nay.
 
 Khi nghiên cứu, ông Dũng nhận thấy có hai luồng ý kiến về cội nguồn của phở: Hà Nội hay Nam Định. Đầu thế kỷ 20, "đội quân phở gánh" của dòng phở Nam Định đã rong ruổi lên Hà Nội hành nghề. Cũng trong khoảng thời gian này xuất hiện dòng phở gốc Di Trạch, tỉnh Hà Đông (nay là Hà Nội).
 
-   
 
   ![Hình ảnh một gánh phở dạo trên đường phố Hà Nội được trưng bày tại sự kiện Gánh hàng rong - buổi trưng bày nghệ thuật do Viện Pháp tại Việt Nam và Viện Viễn Đông Bác Cổ (EFEO) năm 2022. Bức ảnh được chụp trước năm 1950. Ảnh: EFEO](https://vcdn-dulich.vnecdn.net/2023/09/26/3684-1663993670-3328-1695723980.jpg?w=680&h=0&q=100&dpr=1&fit=crop&s=bzkmLafMlohA9bGmRyVbDw)
 
-Bức ảnh một gánh phở dạo trên đường phố Hà Nội được trưng bày tại sự kiện "Gánh hàng rong" - buổi trưng bày nghệ thuật do Viện Pháp tại Việt Nam và Viện Viễn đông Bác Cổ (EFEO) tổ chức cuối năm 2022 tại TP HCM. Bức ảnh được chụp trước năm 1950. Ảnh: _EFEO_
+*Bức ảnh một gánh phở dạo trên đường phố Hà Nội được trưng bày tại sự kiện "Gánh hàng rong" - buổi trưng bày nghệ thuật do Viện Pháp tại Việt Nam và Viện Viễn đông Bác Cổ (EFEO) tổ chức cuối năm 2022 tại TP HCM. Bức ảnh được chụp trước năm 1950. Ảnh: _EFEO_*
 
 Tuy nhiên, nhà nghiên cứu cho rằng Hà Nội chính là cái nôi để phở phát triển bởi thị trường ở đây dồi dào hơn Nam Định. Dù có lượng khách lớn từ nhà máy dệt Nam Định, phở vẫn là món xa xỉ với miền thôn quê Việt Nam, vốn không có thói quen ăn quà. Đây là những điều nhà nghiên cứu đã rút ra sau chuyến khảo cứu về phở Nam Định và trò chuyện với một bậc cao niên tại làng Vân Cù.
 
@@ -19,11 +19,10 @@ Nhà nghiên cứu cho rằng có những đặc trưng của bát phở ngày x
 
 Ông Dũng cho biết điểm dễ thấy nhất về sự mai một của phở truyền thống là chiếc bát chiết yêu dân dã của làng gốm Bát Tràng hay nhiều lò gốm truyền thống khác. Loại bát này miệng loe, đáy thắt. Tiết diện bề mặt giảm dần giúp nước phở ăn tới thìa cuối vẫn còn nóng. Sức chứa của bát nhỏ, không nhiều như các loại bát phở hiện nay do người Hà Nội xưa xem phở như thức quà để ăn lót, không phải ăn no.
 
-   
 
   ![Một chiếc bát chiết yêu giả cổ. Ảnh: Huonggombattrang](https://vcdn-dulich.vnecdn.net/2023/09/26/ca6c5aea4497bdfcceae07d015f462-5752-7165-1695723980.jpg?w=680&h=0&q=100&dpr=1&fit=crop&s=8ENRcKJ0lpafUdN5yFINyQ)
 
-Một chiếc bát chiết yêu giả cổ. Ảnh: _Huonggombattrang_
+*Một chiếc bát chiết yêu giả cổ. Ảnh: _Huonggombattrang_*
 
 "Phở ăn thay cơm xuất hiện về sau này khi cuộc sống dần trở nên bỗ bã hơn và các biến động xã hội phá vỡ nhiều thứ tinh túy của người Hà Nội", ông Dũng nói.
 
@@ -45,11 +44,10 @@ Tuy nhiên, ông Dũng nói thực tế những người yêu phở ở Hà Nộ
 
 Ông Dũng cũng cho rằng một trong những yếu tố khiến phở truyền thống không còn như cũ là mì chính, đường được dùng để tạo vị ngọt. Đây là đặc trưng của phở trong thời bao cấp khi kinh tế khó khăn, người dân phải thắt lưng buộc bụng.
 
-   
 
   ![Bát phở tại một quán ở quận Đống Đa, Hà Nội - nơi khách vẫn xếp hàng như thời bao cấp. Ảnh: Quỳnh Mai](https://vcdn-dulich.vnecdn.net/2023/09/26/IMG-1377-1-2333-1693041254-6015-1695723980.jpg?w=680&h=0&q=100&dpr=1&fit=crop&s=zbPof6uRA4Ye_wRjHwxyUA)
 
-Ảnh bát phở được chụp tháng 8/2023 tại một quán ở quận Đống Đa, Hà Nội - nơi khách vẫn xếp hàng như thời bao cấp. Ảnh: _Quỳnh Mai_
+*Ảnh bát phở được chụp tháng 8/2023 tại một quán ở quận Đống Đa, Hà Nội - nơi khách vẫn xếp hàng như thời bao cấp. Ảnh: _Quỳnh Mai_*
 
 "Thiếu quá, lấy đâu ra thịt với xương mà đòi? Vậy nên, khi nấu phở chỉ còn cách nhờ đến vị cứu tinh mì chính cánh", ông Trịnh Quang Dũng viết trong cuốn sách về phở.
 
@@ -61,11 +59,10 @@ Giai đoạn bao cấp đã ảnh hưởng nhiều đến lối ăn phở của 
 
 Theo ông Dũng, phở mậu dịch thời bao cấp là một chỉ dấu về tình trạng những người Hà Nội cũ "nông thôn hóa" sau thời gian sơ tán về thôn quê để tránh bom đạn Mỹ. Khi ăn phở mậu dịch, khách phải tự phục vụ, xếp hàng lấy bát. Nhân viên cửa hàng không quan tâm tới khách nhiều. Thời đó, quán phở mậu dịch không có giấy ăn - thứ được xem là vật phẩm xa xỉ của "tầng lớp tiểu tư sản". Nhiều khách hàng ăn xong chập đôi đũa, quẹt ngang lau miệng như khi ăn cỗ ở quê.
 
-   
 
   ![Tác giả Trịnh Quang Dũng tại Trung Quốc vào tháng 5/2023. Ảnh: NVCC](https://vcdn-dulich.vnecdn.net/2023/09/28/z4735094258506-8d21757e75c62ac-1909-7692-1695896705.jpg?w=680&h=0&q=100&dpr=1&fit=crop&s=a3VviLzGwH1AvWSAtkvHIA)
 
-Ông Trịnh Quang Dũng, ảnh chụp tháng 5/2023. Ảnh: _NVCC_
+*Ông Trịnh Quang Dũng, ảnh chụp tháng 5/2023. Ảnh: _NVCC_*
 
 Ông Dũng cho biết sẽ không ăn những quán gia truyền bắt khách phải xếp hàng, tự phục vụ, dù phở ngon cỡ nào. Người Hà Nội xưa có nếp ăn uống thanh cảnh, không có chuyện phải xếp hàng để được ăn. Tuy nhiên, ông cũng nhấn mạnh đây là sở thích của từng người nên không phán xét.
 
