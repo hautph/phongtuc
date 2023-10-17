@@ -4,4 +4,4 @@ site_description: Vietnamese customs and traditions
 
 repo_url: https://github.com/hautph/phongtuc
 
-theme: jekyll-theme-minimal
+theme: minimal-mistakes-jekyll
