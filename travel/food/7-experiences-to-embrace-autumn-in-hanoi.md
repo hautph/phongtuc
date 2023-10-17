@@ -14,7 +14,7 @@ Seasonal flowers such as lotus, baby's breath, roses, sunflowers, carnations, an
 **2\. Relish the flavor of young green rice**
 
 ![7 experiences to embrace autumn in Hanoi](/images/7-experiences-to-embrace-autumn-in-hanoi02.png)
-* *Young green rice is placed on a piece of lotus leave, together with fried rice cakes and tea at a shop in Hanoi. Photo by VnExpress/Thao Nhi*
+* *Young green rice is placed on a piece of **lotus leave**, together with fried rice cakes and tea at a shop in **Hanoi**. Photo by VnExpress/Thao Nhi*
 
 **Hanoi's** autumn carries with it the enchanting allure of young green rice, locally known as _com_. This delicate and fragrant treat is inseparably linked to the city's fall season. It's a culinary gem that finds its place in the heart of the city, reminiscent of both the artistic expressions of poets and musicians.
 
@@ -25,27 +25,27 @@ In the past, **Hanoians** paired green rice with ripe bananas and hot tea, while
 **3\. Savor coffee**
 
 ![7 experiences to embrace autumn in Hanoi](/images/7-experiences-to-embrace-autumn-in-hanoi03.png)
-* *A man drinks coffee at Tranquil Books & Coffee on Cao Ba Quat Street, Hanoi. Photo courtesy of Instagram/miinhmin*
+* *A man drinks coffee at **Tranquil Books & Coffee** on **Cao Ba Quat Street, Hanoi**. Photo courtesy of Instagram/miinhmin*
 
 **Autumn** is celebrated as the most picturesque season in **Hanoi**, with its mild weather and abundant sunshine, making it perfect for sipping coffee outdoors while relishing the city's sights and engaging in conversation with friends. Whether you seek bustling cafes in the **Old Quarter** or serene hideaways tucked into ancient villa courtyards, there are plenty of options.
 
 For those who prefer a more tranquil atmosphere, they have the option to visit cafes situated in the peaceful alleys or the charming courtyards of historic villas. Here are some recommendations:
 
-\- Tranquil Books & Coffee: 19 Cao Ba Quat Street, Ba Dinh District
+\- **Tranquil Books & Coffee**: 19 Cao Ba Quat Street, Ba Dinh District
 
-\- Yen: 184 Quan Thanh Street, Ba Dinh District
+\- **Yen**: 184 Quan Thanh Street, Ba Dinh District
 
-\- Hanoi House: 47A Ly Quoc Su Street, Hoan Kiem District
+\- **Hanoi House**: 47A Ly Quoc Su Street, Hoan Kiem District
 
-\- 18 Hoang Dieu Coffee: 19C Hoang Dieu Street (within the Imperial Citadel of Thang Long), Ba Dinh District
+\- **18 Hoang Dieu Coffee**: 19C Hoang Dieu Street (within the Imperial Citadel of Thang Long), Ba Dinh District
 
-\- The Sipping Bar: 30 Phan Ke Binh Street (within Thong Nhat Park), Ba Dinh District
+\- **The Sipping Bar**: 30 Phan Ke Binh Street (within Thong Nhat Park), Ba Dinh District
 
-\- MAY Kitchenware & Coffeeshop: 80 Yen Phu Street, Ba Dinh District
+\- **MAY Kitchenware & Coffeeshop**: 80 Yen Phu Street, Ba Dinh District
 
-\- 8 Coffee: 10 Da Tuong Street, Hoan Kiem District
+\- **8 Coffee**: 10 Da Tuong Street, Hoan Kiem District
 
-\- KOHIBITO: 4 Dinh Le Street, Hoan Kiem District
+\- **KOHIBITO**: 4 Dinh Le Street, Hoan Kiem District
 
 **4\. Indulge in snails**
 
@@ -58,18 +58,18 @@ In autumn, snails are in their prime, plump and crispy. The accompanying dipping
 
 Here are some recommendations:
 
-\- Dinh Liet snail: 1A Dinh Liet Street, Hoan Kiem District
+\- **Dinh Liet snail**: 1A Dinh Liet Street, Hoan Kiem District
 
-\- Tong Duy Tan snail: 5 Tong Duy Tan Street, Hoan Kiem District
+\- **Tong Duy Tan snail**: 5 Tong Duy Tan Street, Hoan Kiem District
 
-\- Ms Le: 88 Cua Bac Street, Ba Dinh District
+\- **Ms Le**: 88 Cua Bac Street, Ba Dinh District
 
-\- Ton That Thiep snail: 14 Ton That Thiep, Ba Dinh District
+\- **Ton That Thiep snail**: 14 Ton That Thiep, Ba Dinh District
 
 **5\. Experience Hanoi from a double-decker bus**
 
 ![7 experiences to embrace autumn in Hanoi](/images/7-experiences-to-embrace-autumn-in-hanoi05.png)
-* *Travelers can gain a unique perspective on Hanoi from the second floor of a double-decker bus. Photo by VnExpress/Nguyen Chi*
+* *Travelers can gain a unique perspective on **Hanoi** from the second floor of a double-decker bus. Photo by VnExpress/Nguyen Chi*
 
 The double-decker open-top bus, introduced in **2018**, has become popular among tourists, especially during the pleasant autumn season. The bus traverses **Hanoi's** iconic tourist destinations and picturesque tree-lined streets. Passengers often prefer the top deck for a refreshing outdoor experience and a bird's-eye view of the city.
 
@@ -80,14 +80,14 @@ There are several ticket options to choose from, with the **4-hour ticket** bein
 ![7 experiences to embrace autumn in Hanoi](/images/7-experiences-to-embrace-autumn-in-hanoi06.png)
 * *The latest addition to Trang Tien ice cream's menu is the pink guava flavor, known for its vibrant pink hue. Photo courtesy of Trang Tien Ice Cream*
 
-**Trang Tien** ice cream, a beloved local treat, has been a fixture in Hanoi since **1958**, situated just a stone's throw away from **Hoan Kiem Lake** on **Trang Tien Street**. The shop's cozy ambiance encourages customers to indulge in ice cream on the spot, reminiscent of simpler times and contributing to the brand's unique charm.
+**Trang Tien** ice cream, a beloved local treat, has been a fixture in **Hanoi** since **1958**, situated just a stone's throw away from **Hoan Kiem Lake** on **Trang Tien Street**. The shop's cozy ambiance encourages customers to indulge in ice cream on the spot, reminiscent of simpler times and contributing to the brand's unique charm.
 
 The menu includes popsicles and ice cream cones in classic flavors like chocolate, coconut milk, green rice, green beans, and taro. In September, **Trang Tien** introduced a pink guava flavor, which quickly gained fame on social media platforms with numerous enthusiastic reviews.
 
 **7\. Witness the West Lake sunset**
 
 ![7 experiences to embrace autumn in Hanoi](/images/7-experiences-to-embrace-autumn-in-hanoi07.png)
-* *The West Lake sunset is a popular attraction in Hanoi, drawing numerous individuals who come to appreciate its beauty. Photo by VnExpress/Nguyen Chi*
+* *The **West Lake** sunset is a popular attraction in Hanoi, drawing numerous individuals who come to appreciate its beauty. Photo by VnExpress/Nguyen Chi*
 
 Visitors should not overlook the opportunity to explore **West Lake**, celebrated as **Hanoi's** most captivating spot for sunsets. During this season, marked by clear skies and sporadic clouds, the chance to behold the breathtaking sunset occurs nearly every day.
 
