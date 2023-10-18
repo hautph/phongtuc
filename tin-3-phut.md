@@ -37,7 +37,7 @@ Khi phóng viên bước ra thì gặp nữ chính dừng xe bên cạnh 1 chàn
 
 **Anh N.**: (cười) Tôi chưa có ý nghĩ đó đâu. Tôi đang có người yêu ở xa mà.
 
-Phóng viên: Vậy anh có nghĩ chị TTT đang "thả thính" anh không?
+**Phóng viên**: Vậy anh có nghĩ chị TTT đang "*thả thính*" anh không?
 
 **Anh N.**: (cười lớn) Tôi không biết nữa, nhưng tôi nghĩ là không đâu. Chị TTT chỉ là đang đùa thôi.
 
@@ -45,7 +45,7 @@ Phóng viên: Vậy anh có nghĩ chị TTT đang "thả thính" anh không?
 
 ## Phỏng vấn độc quyền với chị M.
 
-Phóng viên: Chị M., chị có thể giải thích về những hình ảnh chị và anh P. đứng bên cạnh nhau được không?
+**Phóng viên**: Chị M., chị có thể giải thích về những hình ảnh chị và anh P. đứng bên cạnh nhau được không?
 
 **Chị M.**: (cười) À, đó là anh P. là người giúp tôi sửa xe. Hôm qua xe tôi bị hỏng, anh P. đã giúp tôi sửa.
 
