@@ -13,6 +13,8 @@ Cụ thể, chị TTT đã có những hành động được cho là trêu gh�
 
 ![Ảnh chị TTT](/tin-3-phut/tin-3-phut-01.png)
 
+Ghi chú: anh Đ. nhìn thấy hình ảnh chị TTT đang nói chuyện với đồng nghiệp nam ( không phải anh N. ) nhưng không nói câu nào, quay lưng đi chổ khác.
+
 ## Tin 2: Nữ chính hẹn hò với anh P.?
 
 Hôm qua đã xẩy ra 1 sự kiện mới, đó là cty VNH tan làm lúc 5h, nhưng sau giờ làm vẫn còn khá nhiều người ở lại. 1 số thì đang fix hệ thống VPN, nữ chính thì báo giá cho khách hàng, anh P. thì fix code website bị lỗi. Đến khoảng 5g50 thì mọi người ra về.
