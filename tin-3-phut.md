@@ -2,7 +2,7 @@
 
 ## Tin 1: Chị TTT đang "thả thính" anh N.
 
-Theo nguồn tin mật, anh Đ. và chị TTT đang có quan hệ tình cảm nhưng chưa đến đâu. Hôm nay nhân dịp SN của anh Đ., anh Đ. có mời cả phòng chị TTT trà sữa nhưng chị TTT không uống. Điều này khiến nhiều người tin rằng chị TTT đang "thả thính" anh N.
+Theo nguồn tin mật, anh Đ. và chị TTT đang có quan hệ tình cảm nhưng chưa đến đâu. Hôm nay nhân dịp SN của anh Đ., anh Đ. có mời cả phòng chị TTT trà sữa nhưng chị TTT không uống. Điều này khiến nhiều người tin rằng chị TTT đang "thả thính" anh N. ( anh Đ. và anh N. làm cùng phòng )
 
 Cụ thể, chị TTT đã có những hành động được cho là trêu ghẹo anh N. như sau:
 
@@ -11,11 +11,15 @@ Cụ thể, chị TTT đã có những hành động được cho là trêu gh�
 
 Được biết anh N. đã có người yêu nhưng ở xa, 1 tháng về thăm người yêu 1 lần. Điều này khiến chị TTT gặp nhiều khó khăn trong việc "thả thính".
 
+![Ảnh chị TTT](/tin-3-phut/tin-3-phut-01.png)
+
 ## Tin 2: Nữ chính hẹn hò với anh P.?
 
 Hôm qua đã xẩy ra 1 sự kiện mới, đó là cty VNH tan làm lúc 5h, nhưng sau giờ làm vẫn còn khá nhiều người ở lại. 1 số thì đang fix hệ thống VPN, nữ chính thì báo giá cho khách hàng, anh P. thì fix code website bị lỗi. Đến khoảng 5g50 thì mọi người ra về.
 
 Khi phóng viên bước ra thì gặp nữ chính dừng xe bên cạnh 1 chàng trai nào đó. Phóng viên đã chụp lại 2 tấm hình, ban đầu phóng viên tưởng là anh T. nhưng khoảng 10s sau anh T. mới từ cổng bảo vệ chạy ra, lúc này chị M. và anh P. đã cùng rời đi, khi kiểm tra lại bản số xe thì là xe của anh P.
+
+![Ảnh chị M. và anh P](/tin-3-phut/tin-3-phut-02.png)
 
 Đây là tình huống khá khó hiểu với phóng viên. Chúng tôi cần thời gian thêm để quan sát.
 
