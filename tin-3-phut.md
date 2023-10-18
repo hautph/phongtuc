@@ -19,7 +19,7 @@ Hôm qua đã xẩy ra 1 sự kiện mới, đó là cty VNH tan làm lúc 5h, n
 
 Khi phóng viên bước ra thì gặp nữ chính dừng xe bên cạnh 1 chàng trai nào đó. Phóng viên đã chụp lại 2 tấm hình, ban đầu phóng viên tưởng là anh T. nhưng khoảng 10s sau anh T. mới từ cổng bảo vệ chạy ra, lúc này chị M. và anh P. đã cùng rời đi, khi kiểm tra lại bản số xe thì là xe của anh P.
 
-![Ảnh chị M. và anh P](/tin-3-phut/tin-3-phut-02.png)
+![Ảnh chị M. và anh P](/tin-3-phut/tin-3-phut-02.jpg)
 
 Đây là tình huống khá khó hiểu với phóng viên. Chúng tôi cần thời gian thêm để quan sát.
 
